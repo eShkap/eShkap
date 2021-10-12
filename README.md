@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @eShkap
+- 👀 I’m interested in keep evolving until I can perform a solid mobile app, to help many people in the basic stuff of the day-to-day.
+- 🌱 I’m currently learning the basics of coding.
+- 💞️ I’m looking to collaborate on small projects, because as a beginner I dont have much experience!
+- 📫 The best way to contact me is by my work e-mail ( monkeyholos@gmai.com ).
